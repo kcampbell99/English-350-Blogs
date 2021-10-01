@@ -1,4 +1,4 @@
-#Special Spots on Campus#
+#Special Spots on Campus
 
 Christopher Newport University is only two and a half hours away from my hometown but since the first day of freshman year it has felt like home. The unique architecture and gorgeous great lawn are eye candy when you are walking around campus.
 
