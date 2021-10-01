@@ -12,6 +12,7 @@ Engage and read more about my significant places on campus during my freshman an
 
 <iframe width="960" height="729.2193308550186" data-original-width="1614" data-original-height="1226" src="https://www.thinglink.com/card/1498836870233063427" type="text/html" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen scrolling="no"></iframe><script async src="//cdn.thinglink.me/jse/responsive.js"></script>
   
+  
 Creating my CNU map was was very enjoyable because it allowed me to revisit past photos and videos that display many memories. Writing the descriptions of each place was a challenge because there are so many different memories and experiences that could be added. I was very focused on exemplifying my personal experiences at different spots around campus. I had a lot of trouble thinking of a 10th spot to pinpoint on my map, I think since CNU’s campus is so small I had to think outside of the box.  
 
 When deciding what icons and colors to use I mainly was focused on it being colorful and visually appealing. There are only a few icon images that accurately represent the spot pointed out. I selected the two house icons because those two buildings are where I resided freshman and sophomore year. The library is labeled by a book to exemplify all the reading and studying that took place. The last meaningful icon is the heart for the Great Lawn because of all locations on campus, this is definitely my go to place.
