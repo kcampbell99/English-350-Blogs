@@ -6,7 +6,7 @@ Half way through my college experience the entire world went into lockdown becau
     
 The first two and last two years of college were drastically different for me. Therefore, I chose to tell my CNU story through the lens of my freshman and sophomore year. College life before the pandemic involved spending lots of time in the Regattas dining hall, attending football games, and spending endless time with friends in the dorms and on the Great Lawn. 
   
-I have so many stories and cherishable memories throughout the (ongoing) four years of my college life. I choose to tell the story of my first two years in college since I was always on campus. The spots I choose to point out around campus hold significant value to my first two years at CNU. Each spot is either tied with unforgettable memories or had a positive impact on me as an individual.
+I have so many stories and cherishable memories throughout the (ongoing) four years of my college life. I choose to tell the story of my first two years in college since I was consistently on campus. The spots I choose to point out around campus hold significant value to my first two years at CNU. Each spot is either tied with unforgettable memories or had a positive impact on me as an individual.
 
 Engage and read more about my significant places on campus during my freshman and sophomore year!
 
