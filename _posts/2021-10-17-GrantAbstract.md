@@ -1,4 +1,4 @@
-#Grant "Teaching Styles"#
+*Grant "Teaching Styles"*
 
 Teaching young children has always been a passion of mine. As a teacher, it is very important to teach using a variety of techniques and styles to grasp understanding from all your students.
 
