@@ -1,3 +1,5 @@
+##Grant Abstract##
+
 Teaching young children has always been a passion of mine. As a teacher, it is very important to teach using a variety of techniques and styles to grasp understanding from all your students.
 
 My Grant is going to look at the different teaching styles and how they impact students. I want to make this an interactive network analysis that connects the different teaching styles to one another and to the different learning styles of students. 
