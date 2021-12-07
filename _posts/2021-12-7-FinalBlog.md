@@ -17,7 +17,7 @@ the first draft. My first drafts consist of word vomit to make sure all of my id
 my thoughts properly. I related a lot to the article because my first drafts are never my best work and always have room 
 for improvement, which Shitty First Drafts deems as okay, with made me a lot more confident with my own writing. 
 
-![494AD7F2051C4B1EB1732781CCA76295](https://user-images.githubusercontent.com/494AD7F2051C4B1EB1732781CCA76295.jpg)
+![EBDC9ECC-8A43-4E33-838E-076861F90E0D.jpg](https://user-images.githubusercontent.com/EBDC9ECC-8A43-4E33-838E-076861F90E0D.jpg)
 
 ## *My Favorite Project*
 
@@ -43,6 +43,8 @@ second review came around, I felt confident enough to find a project that wasnâ€
 my reviews I felt bad because I know the time and effort individuals took in creating each DH project. It made me realize 
 that critiques are actually beneficial because it does point of flaws but those flaws can be improved on. Additionally, 
 writing about the positive aspects of the projects in each review allowed for strengths to be highlighted. 
+
+![494AD7F2051C4B1EB1732781CCA76295](https://user-images.githubusercontent.com/494AD7F2051C4B1EB1732781CCA76295.jpg)
 
 ## *Grant Project Overview*
 
