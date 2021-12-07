@@ -65,7 +65,8 @@ reviews advanced the quality of my project.
 
 Considering this class was writing-intensive, there was a lot of focus on advancing our individual writing skills. 
 Personally, I improved as a writer, by being able to be more concise and to the point when writing. I feel more confident
-in my writing when I have completed multiple drafts because the first draft is just a part of the writing process. Through
-the various projects and assignments, I have learned multiple different styles of writing, like blog posts, short Twitter
+in my writing when I have completed multiple drafts because the first draft is just a part of the writing process. 
+
+Through the various projects and assignments, I have learned multiple different styles of writing, like blog posts, short Twitter
 posts, and Grant proposals. There are multiple forms of writing, all that require various lengths, this class helped me understand 
 you can format writing in other ways besides an essay. 
