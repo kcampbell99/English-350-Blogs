@@ -17,8 +17,8 @@ I enjoyed the various projects our class did throughout the semester but my favo
 Not only was it an enjoyable way to relive my freshman and sophomore years, but it also allowed me to learn how to use 
 ThingLink. Incorporating photos, videos, and sounds was an easy process through this technology. The map was very 
 interactive as it allowed the user to click on different areas of campus to understand the importance of each spot 
-for me personally. I loved the final outcome of my project so much I’d like to share it again! Click [here]
-(https://www.thinglink.com/scene/1498836870233063427) to access my personalized CNU map.
+for me personally. I loved the final outcome of my project so much I’d like to share it again! Click (here)
+[https://www.thinglink.com/scene/1498836870233063427] to access my personalized CNU map.
 
 I know this project isn’t required each semester but it was an enjoyable assignment, so I recommend assigning it to 
 future students in English 350!
