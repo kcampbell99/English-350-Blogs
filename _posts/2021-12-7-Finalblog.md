@@ -20,7 +20,7 @@ interactive as it allowed the user to click on different areas of campus to unde
 for me personally. I loved the final outcome of my project so much I’d like to share it again! Click on the link to 
 access my personalized CNU map. 
 
-LINK
+<iframe width="960" height="729.2193308550186" data-original-width="1614" data-original-height="1226" src="https://www.thinglink.com/card/1498836870233063427" type="text/html" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen scrolling="no"></iframe><script async src="//cdn.thinglink.me/jse/responsive.js"></script>
 
 I know this project isn’t required each semester but it was an enjoyable assignment, so I recommend assigning it to 
 future students in English 350!
