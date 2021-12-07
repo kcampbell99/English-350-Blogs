@@ -69,4 +69,4 @@ in my writing when I have completed multiple drafts because the first draft is j
 
 Through the various projects and assignments, I have learned multiple different styles of writing, like blog posts, short Twitter
 posts, and Grant proposals. There are multiple forms of writing, all that require various lengths, this class helped me understand 
-you can format writing in other ways besides an essay. 
+you can format writing in other ways besides a long essay. 
