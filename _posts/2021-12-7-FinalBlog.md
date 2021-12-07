@@ -1,4 +1,4 @@
-##*DH Class*
+## *What DH is to Me*
 
 After taking the class I understand the field of Digital Humanities (DH) as the combination of research within a topic of
 humanities and then digitalizing the content to make it interactive for a target audience. Digital Humanities involves the 
@@ -6,6 +6,8 @@ in-depth learning and analysis of traditional humanities (history, philosophy, l
 using technology. Instead of just reading about the topic, digital humanities includes interactive maps, quizzes, videos, 
 and or audio aspects to allow the user to further engage with the content. Digital Humanities is a continuously evolving 
 field as technology continues to advance. 
+
+## *Readings*
 
 Within the first ten weeks of class, we had multiple readings each week. At first, I thought this was going to be very
 overwhelming and unnecessary for this class. To my surprise not only did I enjoy the majority of the readings, but many 
@@ -16,6 +18,8 @@ my thoughts properly. I related a lot to the article because my first drafts are
 for improvement, which Shitty First Drafts deems as okay, with made me a lot more confident with my own writing. 
 
 ![494AD7F2051C4B1EB1732781CCA76295](https://user-images.githubusercontent.com/494AD7F2051C4B1EB1732781CCA76295.jpg)
+
+## *My Favorite Project*
 
 I enjoyed the various projects our class did throughout the semester but my favorite project by far was the CNU map project.
 Not only was it an enjoyable way to relive my freshman and sophomore years, but it also allowed me to learn how to use 
@@ -29,6 +33,8 @@ to access my personalized CNU map.
 I know this project isn’t required each semester but it was an enjoyable assignment, so I recommend assigning it to 
 future students in English 350!
 
+## *Peer Reviews*
+
 When Dr. Stover first mentioned each student will be critiquing two DH projects throughout the semester I was concerned. I
 assumed the DH projects that were already published were perfect. I learned that I was very wrong, each project has room for
 improvement based on usability, content included, and the overall layout. I appreciated that we got to pick a DH project 
@@ -38,12 +44,16 @@ my reviews I felt bad because I know the time and effort individuals took in cre
 that critiques are actually beneficial because it does point of flaws but those flaws can be improved on. Additionally, 
 writing about the positive aspects of the projects in each review allowed for strengths to be highlighted. 
 
+## *Grant Project Overview*
+
 When the final Grant project was first introduced I was very confused on how each part would be created and then flow all
 together as one. Separating the Grant project into three separate parts, allowed for quality time and effort ot be spent 
 on all aspects of the project. The peer reviews were very helpful because my peers points out problems that I didn’t even
 notice. Also, the specific questions on each peer review sheet made it clear what important aspects to focus on while 
 critiquing. The peer reviews allowed another set of eyes and different perspective to see my work, Overall, the peer 
 reviews advanced the quality of my project. 
+
+## *Personal Gains from This Class*
 
 Considering this class was writing-intensive, there was a lot of focus on advancing our individual writing skills. 
 Personally, I improved as a writer, by being able to be more concise and to the point when writing. I feel more confident
