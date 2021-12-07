@@ -13,6 +13,8 @@ the first draft. My first drafts consist of word vomit to make sure all of my id
 my thoughts properly. I related a lot to the article because my first drafts are never my best work and always have room 
 for improvement, which Shitty First Drafts deems as okay, with made me a lot more confident with my own writing. 
 
+![494AD7F2-051C-4B1E-B173-2781CCA76295.jpg]
+
 I enjoyed the various projects our class did throughout the semester but my favorite project by far was the CNU map project.
 Not only was it an enjoyable way to relive my freshman and sophomore years, but it also allowed me to learn how to use 
 ThingLink. Incorporating photos, videos, and sounds was an easy process through this technology. The map was very 
