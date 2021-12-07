@@ -1,3 +1,5 @@
+##*DH Class*
+
 After taking the class I understand the field of Digital Humanities (DH) as the combination of research within a topic of
 humanities and then digitalizing the content to make it interactive for a target audience. Digital Humanities involves the 
 in-depth learning and analysis of traditional humanities (history, philosophy, literature, etc.) through hands-on aspects 
