@@ -14,10 +14,10 @@ overwhelming and unnecessary for this class. To my surprise not only did I enjoy
 of them were informative and aided my writing ability. Many of the readings gave points on how to remain concise and 
 short within writing, something I struggled with. 
 
-The reading titled Shitty First Drafts explained the benefits of writing
-the first draft. My first drafts consist of word vomit to make sure all of my ideas are written down then take time to form
-my thoughts properly. I related a lot to the article because my first drafts are never my best work and always have room 
-for improvement, which Shitty First Drafts deems as okay, with made me a lot more confident with my own writing. 
+The reading _Shitty First Drafts_ explained the benefits of writing the first draft. My first drafts consist of word vomit to 
+make sure all of my ideas are written down then take time to form my thoughts properly. I related a lot to the article because 
+my first drafts are never my best work and always have room for improvement, which Shitty First Drafts deems as okay, 
+with made me a lot more confident with my own writing. 
 
 ![9569BFC8-FCC6-4A92-8FBC-CB77CA7961AC](https://user-images.githubusercontent.com/9569BFC8-FCC6-4A92-8FBC-CB77CA7961AC.png)
 
