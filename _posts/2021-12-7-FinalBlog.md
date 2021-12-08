@@ -12,12 +12,12 @@ field as technology continues to advance.
 Within the first ten weeks of class, we had multiple readings each week. At first, I thought this was going to be very
 overwhelming and unnecessary for this class. To my surprise not only did I enjoy majority of the readings, but many 
 of them were informative and aided my writing ability. Many of the readings gave points on how to remain concise and 
-short within writing, something I struggled with. 
+short when writing, something I have struggled with. 
 
 The reading _Shitty First Drafts_ explained the benefits of writing the first draft. My first drafts consist of word vomit to 
 make sure all of my thoughts and ideas are written down. Later on, I take time to form my thoughts properly. I related a lot 
 to this article because my first drafts are never my best work and always have room for improvement, which _Shitty First Drafts_
-deems as okay. TReading this article gave me validation and a lot more confidence of my own writing. 
+deems as okay. Reading this article gave me validation and a lot more confidence of my own writing. 
 
 ![9569BFC8-FCC6-4A92-8FBC-CB77CA7961AC](https://user-images.githubusercontent.com/9569BFC8-FCC6-4A92-8FBC-CB77CA7961AC.png)
 
