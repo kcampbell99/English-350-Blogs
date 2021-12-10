@@ -19,7 +19,7 @@ make sure all of my thoughts and ideas are written down. Later on, I take time t
 to this article because my first drafts are never my best work and always have room for improvement, which _Shitty First Drafts_
 deems as okay. Reading this article gave me validation and a lot more confidence of my own writing. 
 
-![9569BFC8-FCC6-4A92-8FBC-CB77CA7961AC](https://user-images.githubusercontent.com/9569BFC8-FCC6-4A92-8FBC-CB77CA7961AC.png)
+![9569BFC8-FCC6-4A92-8FBC-CB77CA7961AC](https://user-images.githubusercontent.com/89557769/145593856-c84b57a6-a5f9-44b7-9227-4816868bd7fd.png)
 
 ## *My Favorite Project*
 
