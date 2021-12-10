@@ -48,7 +48,7 @@ Writing my reviews I felt bad because I know the time and effort individuals too
 that critiques are actually beneficial because it does point of flaws but those flaws can be improved on. Additionally, 
 writing about the positive aspects of the projects in each review allowed for strengths to be highlighted. 
 
-![C0EFDBB8-17E9-49A6-8946-6AB221F7FD73](https://user-images.githubusercontent.com/C0EFDBB8-17E9-49A6-8946-6AB221F7FD73.png)
+![C0EFDBB8-17E9-49A6-8946-6AB221F7FD73](https://user-images.githubusercontent.com/89557769/145594128-0296286a-7661-4791-8a2b-e7b6a1a6cf4c.png)
 
 ## *Grant Project Overview*
 
