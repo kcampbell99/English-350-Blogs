@@ -44,7 +44,7 @@ improvement based on usability, content included, and the overall layout. I appr
 from a preconceived list for the first review because I had no idea where to find a qualified DH project.
 
 By the time the second review came around, I felt confident enough to find a project that wasn’t too big or too small to critique. 
-Writing my reviews I felt bad because I know the time and effort individuals took in creating each DH project. It made me realize 
+While writing my reviews I felt bad because I know the time and effort individuals took in creating each DH project. It made me realize 
 that critiques are actually beneficial because it does point of flaws but those flaws can be improved on. Additionally, 
 writing about the positive aspects of the projects in each review allowed for strengths to be highlighted. 
 
@@ -68,5 +68,5 @@ Personally, I improved as a writer, by being able to be more concise and to the 
 in my writing when I have completed multiple drafts because the first draft is just a part of the writing process. 
 
 Through the various projects and assignments, I have learned multiple different styles of writing, like blog posts, short Twitter
-posts, and Grant proposals. There are multiple forms of writing, all that require various lengths, this class helped me understand 
-you can format writing in other ways besides a long essay. 
+posts, and Grant proposals. There are multiple forms of writing, all that require various lengths. This class helped me understand 
+there are other writing formats besides a long essay. 
